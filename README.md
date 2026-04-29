@@ -1,2 +1,5 @@
-this page is a WIP. Enjoy this wolf while you wait.
-![alt text](https://i.natgeofe.com/k/093c14b4-978e-41f7-b1aa-3aff5d1c608a/gray-wolf-closeup.jpg?wp=1&w=1084.125&h=609)
+![alt text](https://64.media.tumblr.com/94a23fedbe6ec001441076e7658ab00f/1e3f52aa3fa01c75-5f/s250x400/2553714df448e5e6f0c12febb48469776e2e3e40.pnj)![alt text](https://64.media.tumblr.com/94a23fedbe6ec001441076e7658ab00f/1e3f52aa3fa01c75-5f/s250x400/2553714df448e5e6f0c12febb48469776e2e3e40.pnj)
+
+
+
+![alt text](https://64.media.tumblr.com/92ec2fd7c829d0795310c864af718859/1e3f52aa3fa01c75-73/s250x400/7b8eff4573360f01a18b133c4c47c3147992a6db.pnj)![alt text](https://64.media.tumblr.com/92ec2fd7c829d0795310c864af718859/1e3f52aa3fa01c75-73/s250x400/7b8eff4573360f01a18b133c4c47c3147992a6db.pnj)
