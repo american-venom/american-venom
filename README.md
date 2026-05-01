@@ -8,4 +8,4 @@
 
 ‎‎ ‎‎![ftu from tumblr](https://64.media.tumblr.com/92ec2fd7c829d0795310c864af718859/1e3f52aa3fa01c75-73/s250x400/7b8eff4573360f01a18b133c4c47c3147992a6db.pnj)![ftu from tumblr](https://64.media.tumblr.com/92ec2fd7c829d0795310c864af718859/1e3f52aa3fa01c75-73/s250x400/7b8eff4573360f01a18b133c4c47c3147992a6db.pnj)
 
-*>>all found on tumblr, all free to use. credit goes to original posters* 
+<sub><sup>*>>all found on tumblr, all free to use. credit goes to original posters* </sup></sub>
